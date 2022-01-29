@@ -4,6 +4,7 @@
 - 💞 I share my life with 4 adorable cats, lots of plants, a kind big human and a lovable tiny human project. 
 - 🐈‍⬛ I give a hand to a local cat rescue association, designing adoption posters and charity calendars.
 - 📫 You can learn more about me and reach me at my [CV website](https://cv.lavinia.eu).
+- 💬 You can read some of my words about design and code at the [Sonneil Tech Blog](https://sonneiltech.com/author/clavinia/).
 - 👕 If you like my work, you can help keep it up by getting my merch at [La Tostadora](https://www.latostadora.com/clavinia/) or [Redbubble](https://www.redbubble.com/es/people/Clavinia/shop). 
 
 <!---
